@@ -2,7 +2,7 @@
 
 
 
-******************************HI WELCOME TO MY REPOSITORY I THINK MY PROJECT MIGHT ME HELPFUL FOR U ***************************
+******************************HI WELCOME TO MY REPOSITORY I THINK MY PROJECT MIGHT BE HELPFUL FOR U ***************************
 
 
    STEP 1:DOWNLOAD AND EXTRACT THE FILE. 
